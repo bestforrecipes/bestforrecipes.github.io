@@ -1,0 +1,46 @@
+            
+
+#### Recipe of Ultimate Piping Hot Hiroshima Style Okonomiyaki
+
+![Piping Hot Hiroshima Style Okonomiyaki](https://img-global.cpcdn.com/recipes/5777575642136576/751x532cq70/piping-hot-hiroshima-style-okonomiyaki-recipe-main-photo.jpg)
+
+**Piping Hot Hiroshima Style Okonomiyaki**
+
+Hey everyone, it is Brad, welcome to our recipe page. Today, I’m gonna show you how to prepare a distinctive dish, piping hot hiroshima style okonomiyaki. One of my favorites food recipes. For mine, I will make it a bit unique. This is gonna smell and look delicious.
+
+Piping Hot Hiroshima Style Okonomiyaki is one of the most popular of recent trending meals on earth. It’s simple, it is fast, it tastes delicious. It is appreciated by millions daily. They’re nice and they look wonderful. Piping Hot Hiroshima Style Okonomiyaki is something that I’ve loved my whole life.
+
+To get started with this particular recipe, we must prepare a few ingredients. You can cook piping hot hiroshima style okonomiyaki using 15 ingredients and 8 steps. Here is how you cook it.
+
+##### The ingredients needed to make Piping Hot Hiroshima Style Okonomiyaki:
+
+1.  Take For the batter:
+2.  Take Plain white flour
+3.  Make ready Dashi stock (or water)
+4.  Get Additions to the batter:
+5.  Make ready Cabbage (shredded)
+6.  Prepare Bean sprouts
+7.  Take Green onion (sliced into thin rounds)
+8.  Take Tempura crumbs
+9.  Take Dried shrimp
+10.  Get Bonito flakes
+11.  Prepare Thinly sliced pork belly
+12.  Get Eggs
+13.  Make ready packet Yakisoba noodles
+14.  Prepare Sauce for the yakisoba noodles
+15.  Get Salt and pepper
+
+##### Steps to make Piping Hot Hiroshima Style Okonomiyaki:
+
+1.  Finely shred the cabbage, and slice the green onion into thin rounds. Mix the batter together. Prepare all the other ingredients.
+2.  Spread the batter in a circle about 15 to 18 cm in diameter on a heated electric griddle. Sprinkle the top with bonito flakes.
+3.  Put the cabbage, bean sprouts, green onion, tempura batter crumbs and dried shrimp on top of the pancake, then spread the pork belly slices on top. Pour about 2 to 3 tablespoons of batter over all.
+4.  Turn the pancake over in one go! Press down firmly to get rid of any excess moisture.
+5.  Make the yakisoba noodles.
+6.  When the pancake is becoming softened and wilted (because the vegetables inside are getting cooked), move the whole thing on top of the yakisoba noodles. Break 2 eggs on the griddle, and pierce the egg yolks.
+7.  While the egg is still soft-set, move the whole stack of yakisoba noodles and pancake on top of it.
+8.  Turn the whole stack over in 1 go!
+
+So that is going to wrap this up with this exceptional food piping hot hiroshima style okonomiyaki recipe. Thanks so much for reading. I am sure that you can make this at home. There’s gonna be more interesting food in home recipes coming up. Remember to bookmark this page in your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!
+
+* * *

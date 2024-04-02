@@ -1,0 +1,53 @@
+            
+
+#### Recipe of Super Quick Homemade Baked Manicotti w/ Beef
+
+![Baked Manicotti w/ Beef](https://img-global.cpcdn.com/recipes/6164250826375168/751x532cq70/baked-manicotti-w-beef-recipe-main-photo.jpg)
+
+**Baked Manicotti w/ Beef**
+
+Hello everybody, it is Louise, welcome to our recipe page. Today, I’m gonna show you how to prepare a special dish, baked manicotti w/ beef. It is one of my favorites. This time, I will make it a little bit unique. This is gonna smell and look delicious.
+
+Baked Manicotti w/ Beef is one of the most favored of current trending foods on earth. It’s appreciated by millions daily. It’s simple, it’s fast, it tastes yummy. They are fine and they look wonderful. Baked Manicotti w/ Beef is something that I have loved my whole life.
+
+This easy no-boil baked manicotti pasta dish, known as Cannelloni is stuffed with ricotta, parmesan, mozzarella and lean ground beef, then covered in sauce and cheese. I usually make homemade crepe-style manicotti for the holidays, but it's pretty time consuming so I save it for special occasions! Make double: Giada's beefy, cheesy manicotti doesn't leave many leftovers.
+
+To get started with this particular recipe, we have to first prepare a few components. You can have baked manicotti w/ beef using 11 ingredients and 13 steps. Here is how you can achieve that.
+
+##### The ingredients needed to make Baked Manicotti w/ Beef:
+
+1.  Prepare 1 packages Manicotti Shells (14)
+2.  Make ready 1 lb Ground Beef
+3.  Take 1 16 oz. Container Ricotta Cheese
+4.  Prepare 3 cup Shredded Mozzarella Cheese
+5.  Take 1 cup Parmesan Cheese
+6.  Make ready 2 tbsp Parsley
+7.  Get 3 tsp Olive oil
+8.  Take 1 Salt & Pepper to taste
+9.  Take 1 Garlic powder to taste
+10.  Get 1 Onion powder to taste
+11.  Take 3 cup Pasta Sauce
+
+Lasagna-lovers, listen up — manicotti is like lasagna's fancy older sister, and you're gonna want to make it ASAP. It has all the same comfort food satisfaction as your favorite pasta bake, but instead of being layered, the noodles are stuffed with fragrant garlicky ricotta, Parmesan, and savory beef. Beef Cannelloni stuffed with a juicy spinach and beef filling, topped with plenty of tomato cannelloni sauce and melty cheese. It's cosy comfort food that's The cannelloni tubes are uncooked when they are stuffed - they cook (soften) while baking.
+
+##### Instructions to make Baked Manicotti w/ Beef:
+
+1.  In a skillet, brown ground beef seasoned with salt & pepper and garlic and onion powder.
+2.  Set aside to cool.
+3.  In a large pot, boil manicotti shells in salted water 4 to 6 minutes until slightly soft.
+4.  Brush a teaspoon of oil on a large baking sheet.
+5.  Transfer manicotti to baking sheet and cool.
+6.  Combine the ricotta, 1 1/2 cups mozzarella, and 1/2 cup parmesan cheeses and parsley. Stir in the ground beef.
+7.  Pre heat oven to 350
+8.  Grease a 13 by 9 inch glass baking dish with remaining 2 teaspoons of olive oil.
+9.  Spoon in 1 cup of the pasta sauce to baking dish.
+10.  Stuff the manicotti shells with the cheese / meat mixture and place in a single layer in baking dish.
+11.  Cover with remaining sauce, mozzarella, and parmesan cheese.
+12.  Bake uncovered for 30 to 35 minutes.
+13.  Let stand 5 minutes and serve.
+
+Manicotti is the Italian-American version of cannelloni. Fill manicotti shells with spinach mix; place shells on beef mix in baking dish. Pour remaining beef mix proportionately over shells, covering shells completely. Remove from the water to a baking sheet to cool off. Fill the manicotti shells with the beef and cheese mixture.
+
+So that is going to wrap it up for this exceptional food baked manicotti w/ beef recipe. Thanks so much for your time. I am sure that you can make this at home. There’s gonna be interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
+
+* * *

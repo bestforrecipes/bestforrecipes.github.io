@@ -1,0 +1,51 @@
+            
+
+#### Recipe of Speedy The Ultimate Baked Crab Cakes
+
+![The Ultimate Baked Crab Cakes](https://img-global.cpcdn.com/recipes/5673158082297856/751x532cq70/the-ultimate-baked-crab-cakes-recipe-main-photo.jpg)
+
+**The Ultimate Baked Crab Cakes**
+
+Hello everybody, hope you’re having an incredible day today. Today, I will show you a way to prepare a special dish, the ultimate baked crab cakes. One of my favorites. For mine, I am going to make it a little bit unique. This will be really delicious.
+
+The Ultimate Baked Crab Cakes is one of the most popular of recent trending meals on earth. It’s easy, it’s quick, it tastes yummy. It’s appreciated by millions every day. The Ultimate Baked Crab Cakes is something that I’ve loved my whole life. They are nice and they look wonderful.
+
+BAKED Crab Cake recipe How to make the ULTIMATE CRAB CAKES. For this baked crab cake recipe, panko is what brings the CRUNCH! I prefer to use jumbo lump.
+
+To begin with this recipe, we must first prepare a few components. You can have the ultimate baked crab cakes using 18 ingredients and 4 steps. Here is how you can achieve it.
+
+##### The ingredients needed to make The Ultimate Baked Crab Cakes:
+
+1.  Take jumbo lump crab meat
+2.  Make ready FOR DRESSING
+3.  Make ready mayonnaise
+4.  Prepare fresh lemon juice
+5.  Make ready Worchestershire sauce
+6.  Make ready dijon, mustard
+7.  Take hot sauce, such as franks brand
+8.  Prepare black pepper and salt to taste
+9.  Prepare cajun seasoning
+10.  Take chopped green onions and more for garnish
+11.  Prepare finely chopped celery
+12.  Prepare minced garlic clove
+13.  Make ready shredded pepper jack cheese
+14.  Take egg, beaten
+15.  Make ready FOR TOPPING
+16.  Make ready melted butter
+17.  Prepare fresly grated parmesa cheese
+18.  Prepare strips of bacon, cut into 1 inche pieces
+
+Form crab cakes into individual patties and place on a parchment lined baking sheet. These Maryland crab cakes get the stamp of approval from locals and out-of-towners alike. For the best texture, use lump crab meat and very little filler. I've been debating publishing our favorite crab cakes recipe on my blog because I was nervous there wouldn't be enough crab aficionados reading.
+
+##### Steps to make The Ultimate Baked Crab Cakes:
+
+1.  Preheat oven to 425
+2.  In a bowl mix all dressing ingredients, add crab and ever so gently mix with dressing so as not to break crab up. With hands mold into dome shaped crab cakes, place on a butterec baking dish. Drizzle melted butter over each crab cake, sprinkle with parmesan cheese and divide bacon on top of each cake evenly.
+3.  Bake about 10 to 15 minutes util heated and bacon is crisp. Garnish with green onions and offer melted butter for dipping.
+4.  Serve with crusty bread and cole slaw or a green salad!
+
+Many people claim to have the true Maryland crab cake, but this one uses all lump meat with almost no filler added and tastes incredible! Having lived by the Chesapeake Bay on Kent Island, MD nearly my whole life, I was challenged to develop this authentic Maryland style crab cake about a year ago. Make the crab cakes first so they have time to firm up in the refrigerator before you cook them. Dip both sides of each crab cake into bread crumbs, pressing crumbs into cake with hands to completely cover; place on cookie sheet. For an extra crispy crab cake, turn on broiler for the last two minutes of baking.
+
+So that’s going to wrap this up with this exceptional food the ultimate baked crab cakes recipe. Thanks so much for reading. I’m confident you will make this at home. There’s gonna be interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
+
+* * *

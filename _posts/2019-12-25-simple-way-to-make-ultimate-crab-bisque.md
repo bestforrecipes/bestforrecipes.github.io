@@ -1,0 +1,57 @@
+            
+
+#### Simple Way to Make Ultimate Crab Bisque
+
+![Crab Bisque](https://img-global.cpcdn.com/recipes/0be58ae0948771c5/751x532cq70/crab-bisque-recipe-main-photo.jpg)
+
+**Crab Bisque**
+
+Hey everyone, it is Brad, welcome to my recipe page. Today, I will show you a way to prepare a special dish, crab bisque. One of my favorites food recipes. This time, I am going to make it a little bit tasty. This is gonna smell and look delicious.
+
+Delicious, rich and creamy crab bisque, made with fresh cracked Dungeness crab meat, and stock made from the crab shells. Crab Bisque from Delish.com is creamy perfection on a cold winter night. It's an old-school creamy soup that's perfect for a special occasion.
+
+Crab Bisque is one of the most popular of recent trending foods in the world. It is easy, it’s fast, it tastes yummy. It is enjoyed by millions daily. Crab Bisque is something which I’ve loved my entire life. They are nice and they look wonderful.
+
+To begin with this particular recipe, we have to prepare a few components. You can cook crab bisque using 19 ingredients and 9 steps. Here is how you can achieve that.
+
+##### The ingredients needed to make Crab Bisque:
+
+1.  Prepare 1 no Crab shells & legs
+2.  Make ready 30 grams Onion roughly chopped
+3.  Make ready 30 grams Celery roughly chopped
+4.  Make ready 30 grams Carrot roughly chopped
+5.  Take 2 tsp Tomato puree
+6.  Prepare 1 pinch Thyme
+7.  Take 1 sprig Parsley stems
+8.  Make ready 1 no Bay leaves
+9.  Prepare few seeds Black peppercorns
+10.  Get 50 grams Crab meat (removed from claws)
+11.  Prepare 1 tsp Refined oil
+12.  Make ready 1 no Onion, sliced
+13.  Take 30 mls Brandy
+14.  Make ready 2 cups Shell fish stock / plain water
+15.  Get 1 tsp Raw rice
+16.  Take 1 tsp Tomato puree
+17.  Get 20 mls Cooking cream
+18.  Take to taste Seasonings
+19.  Make ready to taste Cayenne pepper / Chilli powder
+
+This isn't a thin Bisque, it's full of crab and vegetables, plus, it's lower in fat. This seafood bisque is made with crab and shrimp, but you may choose to substitute another seafood or add a third, such as lobster, scallops, or firm, flaky fish. Bisque is super easy to prepare and cook. This isn't a thin Crab Bisque, crab is the star here, with carrots and celery taking second place, and the.
+
+##### Steps to make Crab Bisque:
+
+1.  Break the claws & legs from a whole crab & reserve them for cooking & garnish as well.
+2.  Separate the meat from the body & claws, wash the body & keep aside
+3.  Cover the reserved legs & claws in a stock pot with & let it simmer
+4.  Remove the froth, reduce the heat, add rest of the ingredients & simmer for 30 minutes
+5.  In a saucepan, heat oil, cook sliced onion till transparennt for 5 minutes
+6.  Remove from heat, let it cool, once the liquid is cool enough, blend it to a smooth paste
+7.  Now simmer the soup, add chilli powder, seasonings & cream.
+8.  Do not let the soup boil, just simmer till it is ready for serving.
+9.  Decorate the soup with cooked claw, crab meat & finely chopped parsley.
+
+The Most Incredible Crab Bisque with Sherry. A decadent bisque made with real crabmeat and thickened with cream and topped off with a bit of Sherry! The broth and cream combined to make an aesthetically unappealing and texturally-challenging bisque. If you have shells and just a little leftover crab from a cracked-crab feast, this delicious bisque is a natural. Increase the heat to medium-high and stir in the stock and heavy cream.
+
+So that is going to wrap it up with this exceptional food crab bisque recipe. Thank you very much for reading. I’m sure you can make this at home. There’s gonna be more interesting food at home recipes coming up. Remember to bookmark this page on your browser, and share it to your family, friends and colleague. Thanks again for reading. Go on get cooking!
+
+* * *
