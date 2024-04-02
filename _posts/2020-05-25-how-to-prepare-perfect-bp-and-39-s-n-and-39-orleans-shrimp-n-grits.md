@@ -1,0 +1,58 @@
+            
+
+#### How to Prepare Perfect BP&amp;#39;s N&amp;#39;Orleans Shrimp n Grits
+
+![BP's N'Orleans Shrimp n Grits](https://img-global.cpcdn.com/recipes/5849468340011008/751x532cq70/bps-norleans-shrimp-n-grits-recipe-main-photo.jpg)
+
+**BP's N'Orleans Shrimp n Grits**
+
+Hello everybody, it’s me, Dave, welcome to my recipe page. Today, I will show you a way to prepare a distinctive dish, bp's n'orleans shrimp n grits. One of my favorites food recipes. For mine, I’m gonna make it a bit unique. This is gonna smell and look delicious.
+
+BP's N'Orleans Shrimp n Grits is one of the most popular of recent trending foods in the world. It’s appreciated by millions daily. It is easy, it is quick, it tastes delicious. They’re nice and they look fantastic. BP's N'Orleans Shrimp n Grits is something that I have loved my whole life.
+
+To get started with this recipe, we must first prepare a few ingredients. You can have bp's n'orleans shrimp n grits using 27 ingredients and 8 steps. Here is how you can achieve that.
+
+##### The ingredients needed to make BP's N'Orleans Shrimp n Grits:
+
+1.  Get for the shrimp
+2.  Make ready 1 lb large shrimp, peeled, deveined
+3.  Make ready 1 lb Andouille Sausage, sliced on the diagonal 1/2 inch
+4.  Prepare 1 tbsp creole seasoning
+5.  Make ready 1 tbsp garlic powder
+6.  Prepare 1 tbsp onion powder
+7.  Get 2 tsp black pepper
+8.  Get 1 tsp dried thyme
+9.  Make ready 1 tsp smoked paprika
+10.  Make ready 1/2 stick stick of butter
+11.  Get 2 tbsp extra virgin olive oil
+12.  Prepare 2 stalks celery, chopped
+13.  Get 1 jalapeno, diced
+14.  Make ready 1 bell pepper, diced
+15.  Prepare 1 small red onion, diced
+16.  Make ready 3 clove garlic, minced
+17.  Take for the grits
+18.  Take 1 cup grits
+19.  Take 1 cup water
+20.  Take 1 cup milk
+21.  Prepare 1 cup beef or chicken broth, low sodium + extra to thin grits as they cook
+22.  Make ready 1 stick butter
+23.  Get 1 1/2 cup grated sharp cheddar cheese
+24.  Get 1 tsp Creole seasoning
+25.  Get 1 tsp blk pepper
+26.  Get 1 tsp garlic powder
+27.  Get 1 tsp onion powder
+
+##### Instructions to make BP's N'Orleans Shrimp n Grits:
+
+1.  In a large pot bring all liquids to boil, add butter and seasonings
+2.  Slowly stir in grits while whisking nonstop for about two minutes.
+3.  Reduce heat to low and cook grits, stirring occasionally for about 20 minutes.
+4.  Adding extra broth as needed to keep the grits thin. Add cheese and whisk well, add more broth if needed.
+5.  To prepare the shrimp, peel and devein shrimp, season with all the spices and set aside.
+6.  In a large saute pan add butter and olive oil over medium high heat, add all the vegetables, except garlic and saute for 5 minutes, add garlic and saute 1 minute more.
+7.  Add andouille sausage and saute about 10-15 minutes, until browned. Add shrimp and cook about 3-4 minutes are until no longer pink.
+8.  Serve on top of hot grits…yes sir!
+
+So that’s going to wrap this up with this special food bp's n'orleans shrimp n grits recipe. Thanks so much for reading. I’m confident you can make this at home. There is gonna be interesting food at home recipes coming up. Remember to save this page in your browser, and share it to your family, friends and colleague. Thank you for reading. Go on get cooking!
+
+* * *

@@ -1,0 +1,43 @@
+            
+
+#### Simple Way to Prepare Homemade Risotto Nero di seppia squid ink risotto
+
+![Risotto Nero di seppia squid ink risotto](https://img-global.cpcdn.com/recipes/28751c0ea5565986/751x532cq70/risotto-nero-di-seppia-squid-ink-risotto-recipe-main-photo.jpg)
+
+**Risotto Nero di seppia squid ink risotto**
+
+Hello everybody, hope you are having an amazing day today. Today, I’m gonna show you how to prepare a special dish, risotto nero di seppia squid ink risotto. It is one of my favorites. For mine, I am going to make it a bit tasty. This is gonna smell and look delicious.
+
+Risotto Nero di seppia squid ink risotto is one of the most popular of recent trending foods in the world. It’s appreciated by millions every day. It is easy, it’s fast, it tastes yummy. Risotto Nero di seppia squid ink risotto is something that I’ve loved my whole life. They’re nice and they look wonderful.
+
+Take off the heat and toss the rice. But nero di seppia (cuttlefish ink) is sold in small sachets in some specialty stores. They are also available online, sometimes under its Spanish name, tinta Squid ink risotto takes rather longer than your usual risotto because of the initial braising, but the dish lends itself very well to pressure cooking.
+
+To get started with this particular recipe, we must prepare a few components. You can cook risotto nero di seppia squid ink risotto using 11 ingredients and 3 steps. Here is how you can achieve it.
+
+##### The ingredients needed to make Risotto Nero di seppia squid ink risotto:
+
+1.  Prepare 350 g risotto rice
+2.  Take Chopped onion
+3.  Take 200 g squid, washed and chopped
+4.  Make ready Squid ink
+5.  Take 1-1.2 litres stock
+6.  Get Dried chilli - optional
+7.  Prepare to taste Salt
+8.  Take Knob butter
+9.  Take Glug of white wine
+10.  Make ready Olive oil
+11.  Get Fresh parsley
+
+Risotto Nero recipe, or Squid Ink Risotto, an inky black, rich, earthy yet creamy Venetian rice that leaves you in no doubt that this is a seafood dish. This risotto is a Venetian classic and is a stunning dish to behold. It owes its identity to the good old squid, or specifically, to the squid ink itself. Il risotto al nero di seppia è una delle poche ricette di pesce dove si usa la cipolla invece dell'aglio.
+
+##### Instructions to make Risotto Nero di seppia squid ink risotto:
+
+1.  Fry onion in a little oil. When softened, add the squid and cook for 2-3 mins. Add rice, stir and add wine. Cook for a couple of mins until wine has evaporated
+2.  Add 3/4 of the stock, chilli, salt, stir and simmer. After about 10 mins, add the squid ink. Stir and simmer for another 10 mins. Add butter towards end of cooking time. Stir well \* add rest of stock if needed
+3.  Serve with fresh parsley :)
+
+E' una ricetta che si ama o si odia. TRADITIONAL ITALIAN RECIPE: Squid-ink risotto, or risotto al nero di seppia as it is called in Italy, is probably the most elegant risotto dish. Italians also use squid ink in pasta, and in Spain they make a version of their famous rice dish, paella, with it. For this dish you should use short or medium Rice. Squid ink risotto - risotto al nero di seppia.
+
+So that’s going to wrap this up for this special food risotto nero di seppia squid ink risotto recipe. Thank you very much for your time. I am sure you will make this at home. There is gonna be more interesting food in home recipes coming up. Remember to save this page in your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!
+
+* * *

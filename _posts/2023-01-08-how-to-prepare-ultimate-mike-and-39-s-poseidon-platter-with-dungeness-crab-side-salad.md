@@ -1,0 +1,73 @@
+            
+
+#### How to Prepare Ultimate Mike&amp;#39;s Poseidon Platter With Dungeness Crab Side Salad
+
+![Mike's Poseidon Platter With Dungeness Crab Side Salad](https://img-global.cpcdn.com/recipes/f69a560495985b94/751x532cq70/mikes-poseidon-platter-with-dungeness-crab-side-salad-recipe-main-photo.jpg)
+
+**Mike's Poseidon Platter With Dungeness Crab Side Salad**
+
+Hello everybody, I hope you’re having an amazing day today. Today, I will show you a way to make a distinctive dish, mike's poseidon platter with dungeness crab side salad. It is one of my favorites food recipes. For mine, I’m gonna make it a bit tasty. This is gonna smell and look delicious.
+
+I'm eating a seafood platter that consists of king crab, Dungeness crab, Snow crab and lobster! I am dipping it in plain butter sauce. Dungeness Crab and Jumbo Snow Crab Legs Seafood Boil.
+
+Mike's Poseidon Platter With Dungeness Crab Side Salad is one of the most well liked of current trending foods in the world. It is easy, it is fast, it tastes delicious. It is enjoyed by millions every day. They are fine and they look wonderful. Mike's Poseidon Platter With Dungeness Crab Side Salad is something that I’ve loved my whole life.
+
+To get started with this recipe, we have to first prepare a few ingredients. You can cook mike's poseidon platter with dungeness crab side salad using 30 ingredients and 14 steps. Here is how you cook that.
+
+##### The ingredients needed to make Mike's Poseidon Platter With Dungeness Crab Side Salad:
+
+1.  Make ready ● For The Crab Legs \[ask your fish monger to steam them for you\]
+2.  Get 5 Pounds Pre-steamed Alaskan King Crab Legs & Claws
+3.  Make ready ● For The Dungeness Crab \[ask your fish monger to steam them 4U\]
+4.  Make ready 1 (5 Pound) or 2 2.5) Dungeness Crab \[reserve shells for salad\]
+5.  Get ● For The Shrimp \[raw - dethawed\]
+6.  Take 1 Bag Jumbo Shrimp \[21-25 count - de-veined - tails left on\]
+7.  Get to taste Lemon Pepper
+8.  Prepare 4 Metal Scewers
+9.  Take ● For The Corn
+10.  Take 4 LG Fresh Corn Cobs \[shucked - halved - no salt\]
+11.  Get as needed Whole Milk & Water \[equal parts enough to cover corn\]
+12.  Get 1/2 Cup Salted Butter
+13.  Get ● For The Marinade \[to be used on all seafood\]
+14.  Make ready Olive Oil - Lemon Juice - Garlic Juice \[equal parts as needed\]
+15.  Make ready 1 tsp Old Bay Seasoning
+16.  Make ready 1 tbsp Fresh Course Black Pepper
+17.  Take 1 Butter Brush
+18.  Take ● For The Garlic Butter \[as needed\]
+19.  Make ready 1 Box Kerrygold Garlic & Herb Butter
+20.  Make ready ● For The EZ Crab Salad \[as needed\]
+21.  Take Top Shells From Dungeness Crabs
+22.  Take Fine Shreadded Butter Lettuce
+23.  Make ready Fine Minced Green Bell Peppers
+24.  Get Fine Minced Celery
+25.  Prepare Fine Minced Parsley
+26.  Take Fine Minced Shallots
+27.  Take to taste Lemon Juice
+28.  Make ready Real Mayonnaise \[just enough to coat mixture\]
+29.  Take to taste Cracked Black Pepper
+30.  Get to taste Sea Salt
+
+Dungeness Crab - all about Dungeness crab season, price, recipes, how to eat the crab and a delicious I love crustacean, especially crab! I am so lucky that I live in California where I can get live Dungeness crab all year round. They are found on the west coast of the North America, from British. Imitation crab seafood salad is easy to make and can be served as a sandwich spread, chunky dip, or appetizer cracker topper.
+
+##### Instructions to make Mike's Poseidon Platter With Dungeness Crab Side Salad:
+
+1.  Pictured is the bulk of what you'll need for 2.5 servings. If choosing to steam your own legs - steam with lemon, garlic and white wine. When you can smell your legs - they're done. The Dungeness Crab will take 7 to 8 minutes per pound if choosing to steam. More seafood was served but this was all my students could fit into frame.
+2.  Start your corn cobs. Add equal parts milk and water. Milk adds sweetness to corn. Add enough fluid to cover your corn. Also, add your butter. Bring to a boil and simmer for 10 to 15 minutes. Watch your pot as the milk can cause it foam up and overflow.
+3.  Make your marinade and coat all seafood generously with it. Not much is needed.
+4.  Scewer your Jumbo Shrimp, marinate and refrigerate. Also, add a few dashes of lemon pepper to your shrimp.
+5.  It's time to grill! Clean grill, spray with non stick spray and heat. Here you're only heating your King Crab Legs and Dungeness Crab. Try to keep your temp at 400° However, you'll be grilling your shrimp. Over direct heat, grill for 5 to 7 minutes turning occasionally until shrimp is pink on the outside and opaque on the inside..
+6.  Gently heat your garlic Kerrygold butter.
+7.  Plate seafood hot with lemon wedges to the side with plenty of napkins.
+8.  Since you have all of your butters out at room temperature, consider serving fresh, warm crispy breads. Also, consider a honey butter. It's a great contrast to the saltiness of your seafood and other butters. I've got a great honey butter recipe under my profile if interested. ☺
+9.  Pull your top shells from your Dungeness Crabs and clean. Boil for two minutes.
+10.  A pulled and cleaned top shell from crab pictured.
+11.  The inside of your cleaned shell pictured that's been boiled for 2 minutes. You do have the option of leaving what we call, "The Mustard," within the shell but, I warn you - you'd better like the crazy taste of fishy if you do! 🐬
+12.  Create your crab salad by chopping your vegetables and adding your other chilled ingredients. See recipe above. Mix well.
+13.  Pack your shell with your craby chilled rich goodness! Garnish with fresh parsley, fresh ground black pepper and lemon wedges Enjoy!
+14.  Check this out. my students even bought their moms a special pink fragrant rose at the end of their meal. How stinking sweet was that?! I swear - so sweet I darned near got a cavity!
+
+Place a scoop of this seafood salad in half an avocado for an impressive and beautiful lunch or light dinner; it's perfect on a hot summer night. Dungeness crab and fresh avocado are two of California's quintessential ingredients. This dish utilizes them both beautifully and puts an innovative You need to allow char-marks to develop so it doesn't stick. Left off back shell of crab. Dungeness crab, shrimp, clams, mussel, with corn and potato salad. crab cake plus choice of jumbo shrimp,stuffed shrimp, coconut shrimp,scallops with one side.
+
+So that is going to wrap this up for this exceptional food mike's poseidon platter with dungeness crab side salad recipe. Thanks so much for your time. I’m confident you can make this at home. There’s gonna be interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your loved ones, friends and colleague. Thanks again for reading. Go on get cooking!
+
+* * *

@@ -1,0 +1,7 @@
+---
+layout: null
+---
+
+sitemap: {{ "rss/sitemap.txt" | prepend: site.baseurl | prepend: site.url }}
+
+disallow: /

@@ -1,0 +1,35 @@
+            
+
+#### Simple Way to Prepare Speedy Tuna Horseradish Salad Sandwich
+
+![Tuna Horseradish Salad Sandwich](https://img-global.cpcdn.com/recipes/96823596740f2f97/751x532cq70/tuna-horseradish-salad-sandwich-recipe-main-photo.jpg)
+
+**Tuna Horseradish Salad Sandwich**
+
+Hey everyone, it’s Brad, welcome to our recipe site. Today, we’re going to make a special dish, tuna horseradish salad sandwich. One of my favorites. This time, I’m gonna make it a little bit unique. This is gonna smell and look delicious.
+
+Tuna Horseradish Salad Sandwich is one of the most popular of recent trending meals on earth. It’s enjoyed by millions daily. It’s simple, it’s fast, it tastes yummy. They are fine and they look wonderful. Tuna Horseradish Salad Sandwich is something that I’ve loved my entire life.
+
+To begin with this particular recipe, we must prepare a few components. You can cook tuna horseradish salad sandwich using 6 ingredients and 6 steps. Here is how you cook it.
+
+##### The ingredients needed to make Tuna Horseradish Salad Sandwich:
+
+1.  Make ready 5 ounces canned tuna
+2.  Take 2 tablespoons prepared Horseradish
+3.  Take 3 tablespoons mayonnaise separated
+4.  Prepare 1 tablespoon parsley flakes
+5.  Make ready 1/2 teaspoon dill weed
+6.  Take 3 slices bread
+
+##### Steps to make Tuna Horseradish Salad Sandwich:
+
+1.  Drain the tuna.
+2.  Add to a bowl with Horseradish
+3.  Add half the mayonnaise mix. Then add the parsley and dill weed
+4.  Add rest of mayonnaise to two of the slices of bread. Add salad to two slices of bread and stack on top of each other
+5.  Add top slice of bread
+6.  Cut in half and serve. I hope you enjoy!
+
+So that’s going to wrap this up for this exceptional food tuna horseradish salad sandwich recipe. Thank you very much for your time. I’m sure that you can make this at home. There is gonna be interesting food in home recipes coming up. Remember to save this page on your browser, and share it to your loved ones, colleague and friends. Thanks again for reading. Go on get cooking!
+
+* * *
